@@ -12,8 +12,8 @@ Wash the eggshells thoroughly and boil them for about 15 mins to kill all bacter
 
 3. Step three
 To dry the eggshell, you can use one of these two methods: 
- 1. Place the eggshells in the oven at 100 degrees for 15 minutes.
- 2. Place the eggshells in the microwave for 1 minute at high temperature, then 3 minutes at med-high.
+1. Place the eggshells in the oven at 100 degrees for 15 minutes.
+2. Place the eggshells in the microwave for 1 minute at high temperature, then 3 minutes at med-high.
 Both methods work, but the eggshells need to be dried out; brittle but not burnt. Subtle crackling sound means that the eggshells are ready.
 
 4. Step four
