@@ -1,6 +1,7 @@
- Water22 ml
- Eggshell20 grams
- Calcium Alginate5 grams
+ - Water 22 ml
+ - Eggshell 20 grams
+ - Calcium Alginate 5 grams
+--- 
 Step one
 Preparation of eggshells:
 
